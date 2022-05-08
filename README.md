@@ -1,3 +1,3 @@
-# Hello, and welcome to my GitHub
+# Hello, there. :sunglasses:
 
-Now that you're here, it's time to leave...
+Can you spot the amateur?
